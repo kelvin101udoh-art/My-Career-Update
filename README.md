@@ -12,8 +12,8 @@ I officially joined Cede Foundation as a Research & Bid Support Volunteer, contr
 
 **Evidence:**  
 - Offer letter + acceptance email  
-- LinkedIn announcement post  
-- Medium announcement article  
+- LinkedIn announcement post: https://www.linkedin.com/in/kelvin-udoh-b6197a398  
+- Medium announcement article: https://medium.com/@kelvin101udoh
 - Future onboarding screenshots  
 
 This role supports my broader journey in Digital Transformation, MIS consulting, STEM innovation, and community-oriented leadership.
